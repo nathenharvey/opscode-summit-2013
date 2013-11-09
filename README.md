@@ -1,0 +1,1 @@
+Opscode Community Summit - 2013
